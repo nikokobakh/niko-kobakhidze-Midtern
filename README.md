@@ -1,2 +1,0 @@
-# niko-kobakhidze-Midtern
-Midtern
